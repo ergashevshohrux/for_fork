@@ -1,1 +1,1 @@
-# for_fork
+# Ergashev Shohrux
